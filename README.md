@@ -52,6 +52,9 @@ sulatı bloğu dalış malzemeleri ekipmanları tarihi hakkında yazı
 
 
 
+
+
+
 **dalışı yeni öğrenmeye başlayanlara okumasını biraz daha birşeyler öğrenene kadar okumasını tavsiye etmiyorum, biraz garip gelebilir**
 
 https://www.tdisdi.com/tdi-diver-news/girls-pee-    kuru elbise içindeyken işemenin kadınlardaki dinamiğiyle alakalı ve bu konuda birkaç tavsiye ile ilgili bir yazı
