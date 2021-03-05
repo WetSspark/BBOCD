@@ -10,8 +10,8 @@ https://www.scubaboard.com/community/forums/commercial-divers.814/page-6
 
 https://www.reddit.com/r/commercialdiving/
 reddit' in r/scuba kısmında da bir çok commercial diving postu var, ama birçok sportif dalış postuda içerdiği için filtrelemesi çok zor, genellikle spesifik bir şeyler ararken karşıma çıkıyor. 
-
-
+.
+.
 http://community.cdiver.net/
 http://community.cdiver.net/video/video/listForContributor?screenName=0msg66myuqe7q (eski sitesi)
 https://www.facebook.com/CommercialDiving/
@@ -22,7 +22,8 @@ https://cdiver.net/
 http://community.cdiver.net/video/test-h2-explosivity 
 -by papy one- nearly pure hydrogen has an explosive (shockwave) reaction or not?
 
-
+.
+.
 http://www.halukcecan.com/?fbclid=IwAR3FKhgHGujpOrSznwQksShU8w14xZ8Sts3ErZu-EZ4z8xCKSxKCnree1b4
 türk captan cauestau diyolar
 
@@ -43,37 +44,37 @@ http://papyone.over-blog.com/article-the-funny-story-of-3-nuclear-commercial-div
 gülmekten gözlerinizden yaş gelebilir, pek bir teknik bilgi içermiyor.
 
 https://www.linkedin.com/feed/update/urn%3Ali%3Aactivity%3A6749254199726370817/?commentUrn=urn%3Ali%3Acomment%3A%28ugcPost%3A6747668796221263872%2C6749254130931380224%29
-
-
+.
+.
 https://wildblue.co.nz/News/Blog/x_post/Retro-lovers-discover-a-piece-of-diving-history-00009.html#:~:text=The%20first%20model%20known%20as,Frenchman%20Fr%C3%A9d%C3%A9ric%20Dumas%20before%20WWII.
 sulatı bloğu dalış malzemeleri ekipmanları tarihi hakkında yazı
-
-
-
-
-
-
-
-
+.
+.
+.
+.
+.
+.
+.
+.
 **dalışı yeni öğrenmeye başlayanlara okumasını biraz daha birşeyler öğrenene kadar okumasını tavsiye etmiyorum, biraz garip gelebilir**
 
 https://www.tdisdi.com/tdi-diver-news/girls-pee-    kuru elbise içindeyken işemenin kadınlardaki dinamiğiyle alakalı ve bu konuda birkaç tavsiye ile ilgili bir yazı
 
 https://www.tdisdi.com/tdi-diver-news/the-p-valve-struggle/    kuru elbise içindeyken işemenin erkeklerdeki dinamiğiyle alakalı ve bu konuda birkaç tavsiye ile ilgili bir yazı
-
- 
- 
- 
-
+.
+.
+.
+.
+.
 https://www.uhms.org/ undersea and hyperbaric medical society
-
-
-
-
-
-
-
-
+.
+.
+.
+.
+.
+.
+.
+.
 kaldığım yer
 http://papyone.over-blog.com/
 https://www.google.com/search?q=papyone+commerical+diver&oq=papyone+commerical+diver&aqs=chrome..69i57j0i13j0i13i30j0i8i13i30j69i60l3j5i13i44.2832j0j7&sourceid=chrome&ie=UTF-8
