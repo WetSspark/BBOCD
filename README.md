@@ -1,5 +1,13 @@
-# BBOCD
-sanayi dalgıçlığıyla ilgili bazı linkler
+# BBOCD - Big Book Of Commerical Diving
+Sanayi dalgıçlığıyla ilgili bazı linkler
+
+Şuan bu link tam olarak düzenlenmiş değil, staj başvurularında gösterebilmek üzere public hale getirdim. Github kullanıcıları public linkelere katkıda bulunabiliyor.
+
+Öğrenciler ve yeni başlayanlar (hatta belki eğiticiler) için internette bulduğum ve önemli bilgileri kolayca paylaşmak için oluşturduğum bir link.
+.
+.
+.
+.
 https://www.scotti.eu/  
 Born in 1982, based in Genova, Italy. italyan bir snayi dalgıcının kariyerini ve kendini tanıtan sitesi
 
@@ -58,29 +66,52 @@ sulatı bloğu dalış malzemeleri ekipmanları tarihi hakkında yazı
 .
 **dalışı yeni öğrenmeye başlayanlara okumasını biraz daha birşeyler öğrenene kadar okumasını tavsiye etmiyorum, biraz garip gelebilir**
 
-https://www.tdisdi.com/tdi-diver-news/girls-pee-    kuru elbise içindeyken işemenin kadınlardaki dinamiğiyle alakalı ve bu konuda birkaç tavsiye ile ilgili bir yazı
+https://www.tdisdi.com/tdi-diver-news/girls-pee-   kuru elbise içindeyken işemek - kadınlar için
 
-https://www.tdisdi.com/tdi-diver-news/the-p-valve-struggle/    kuru elbise içindeyken işemenin erkeklerdeki dinamiğiyle alakalı ve bu konuda birkaç tavsiye ile ilgili bir yazı
+https://www.tdisdi.com/tdi-diver-news/the-p-valve-struggle/    kuru elbise içindeyken işemek - erkekler için
 .
 .
 .
 .
-.
-https://www.uhms.org/ undersea and hyperbaric medical society
-.
-.
-.
-.
-.
+https://www.uhms.org/
+(undersea and hyperbaric medical society) hiperbarik tıp konusunda ADCI, DAN, SSI gibi organizasyonlarında baz aldığı ve yıllık 4 kere "journal" yayınlıyorlar. Alt linkteki gibi herkese açık paylaşılmayan journalları dünya genelinde özellikle dalış ve hiperbarik tıpa dahil olan her konuda hakkında bilimsel yazılar, vaka incelemeleri gibi çok öğretici bilgiler içeriyorlar. Tam erişim için bireysel üyelik ücreti 85$ (2021 mart) ama hemşirelik, tıp veya bilimsel üniversite bölümlerinde okuyanlar 1 yıllık ücretsiz öğrenci üyeliği kullanabiliyor.
+
+https://www.uhms.org/images/Events/Annual_Meeting/2016/ASM16_Abstracts-program_WEB.pdf 2016 yılında yaptıkları yıllık bilimsel toplantılarının notları
+
 .
 .
+eski bir sanayi dalgıcının fotoğraflarını paylaştığı websitesi ve özellikle eski ekipmanları paylaştığı instagram hesabı.
+https://www.instagram.com/johnawilkins72/
+https://siebegorman.picfair.com/
+
+eski dalış malzemelerinin paylaşıldığı bir galeri sayfası
+https://www.thediverslocker.com/gallery/diving/
+
+mangrove ormanlarının kıyıdaki erozyonu azaltma etkisi ve tsunamiden koruyuculuğuyla ilgili yazılar.
+https://www.linkedin.com/feed/update/urn:li:activity:6763734281622716416/
+https://www.newscientist.com/article/mg22430005-200-mangrove-forest-planted-as-tsunami-shield/
+
+
+
+Su Altı Kaynağı - İş İmkanları, Eğitim, Kullanım Alanları [Sohbet Atölyesi-1]  ----weld wolf youtube kanalından
+https://www.youtube.com/watch?v=fNtCs2Mcvmg
+
+https://www.youtube.com/channel/UCyei_41uX5VvSY9mT-DjK5Q
+weld wolf youtube kanalı - kaynak konusunda güzel eğitici videolar çeken bir youtube kanalı.
+
+NYD' de türk eğitmen Cem Durgun' un bir röportajı
+https://www.sualtigazetesi.com/ozgurdalgiclar-konuk-cem-durgun/
+linke birşey olursa diye içindeki video linki
+https://www.youtube.com/watch?v=R3G1lKfCWs4
 .
-kaldığım yer
-http://papyone.over-blog.com/
-https://www.google.com/search?q=papyone+commerical+diver&oq=papyone+commerical+diver&aqs=chrome..69i57j0i13j0i13i30j0i8i13i30j69i60l3j5i13i44.2832j0j7&sourceid=chrome&ie=UTF-8
-https://www.scubaboard.com/community/forums/commercial-divers.814/page-6
-https://www.google.com/search?q=francis.hermans&oq=francis.hermans&aqs=chrome..69i57j69i60j69i61l2&sourceid=chrome&ie=UTF-8
-https://independent.academia.edu/FrancisHermans
+.
+.
+özellikle öğrenciler ve yeni başlayanlar için Türkiye' de dalışın geçmişi, ülkemizde ki bu işin eskileri, haberleri içeren özellikle youtube daki özgür dalgıçlar serisiyle yoğun bilgi içeriyor.  
+https://www.sualtigazetesi.com/
+
+https://www.youtube.com/channel/UC5aYjyokT7cBNpuuauUfgNw
+sualtı gazetesi youtube sayfası
+
 
 
 
