@@ -132,5 +132,48 @@ sualtı gazetesi youtube sayfası
 
 
 
+- https://twitter.com/ADCI_Official
+ADCI twitter
+
+- https://twitter.com/IMCAint
+IMCA twitter
+
+
+- https://twitter.com/DiveKirbyMorgan
+kirby morgan twitter
+
+
+- https://www.kirbymorgan.com/wallpaper
+kirby morgan 35 tane kaliteli ve farklı ölçülere uygun duvar kağıtları
+
+
+- https://twitter.com/Ziggy_Diver1
+ilk afrikalı kadın sanayi dalgıcının twitterı
+
+
+
+- https://twitter.com/DivingResearch
+dalış araştırmaları 
+
+- https://www.bbc.com/news/uk-scotland-north-east-orkney-shetland-47826802
+netflix "last breath" belgeselindeki olayın haberi
+
+He said: "I assumed it was the extreme cold of the water that slowed my functions down. But the gas we breathe has a high concentration of oxygen which saturated my tissues and cells to allow me to survive."
+
+
+- https://www.linkedin.com/feed/update/urn:li:activity:6779351202753724416/
+						Norveç'te bir ROV görevi esnasında yaşanan meraklı bir karşılaşma anı🧐
+- https://www.youtube.com/watch?v=uUcsj11Ndvs
+
+
+- https://www.kirbymorgan.com/wallpaper
+kirby morgan wallpaperları
+
+- https://www.youtube.com/watch?v=IUdRYifIuE0
+The True Story Behind Men Of Honor | Carl Brashear | The First Black Master Diver In US History
+
+
+
+
 
 
