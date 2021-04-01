@@ -178,8 +178,8 @@ Tribute to Carl Brashear from motion picture MEN OF HONOR
 - https://www.oris.ch/tr/story/56/Carl%20Brashear
 oris markası, carl breasher için bir saat serisi de oluşturmuş
 
-- https://carlbrashear.org/
-carl breasher vakfı web sitesi
+- http://carlbrashear.org/videos/
+Carl Breasher Vakfı sitesinde Carl Breasher hakkındaki videoların toplandığı sayfa her video birbirinden ilginç
 
 -https://www.diversinstitute.edu/men-honor-actors-navy-dit-staff/#:~:text=%E2%80%9CThe%20Navy%20Diver%20is%20not,the%20way%2C%20he%20moves%20it.
 MEN OF HONOR: ACTORS, NAVY AND DIT STAFF
