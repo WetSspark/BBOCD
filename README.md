@@ -183,6 +183,7 @@ carl breasher vakfı web sitesi
 
 -https://www.diversinstitute.edu/men-honor-actors-navy-dit-staff/#:~:text=%E2%80%9CThe%20Navy%20Diver%20is%20not,the%20way%2C%20he%20moves%20it.
 MEN OF HONOR: ACTORS, NAVY AND DIT STAFF
+Making Men of Honor: How DIT Helped to Train this Movie’s Actors & Crew
 
 
 - https://www.youtube.com/watch?v=ST93gI2wL-g
