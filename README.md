@@ -181,6 +181,9 @@ oris markası, carl breasher için bir saat serisi de oluşturmuş
 - https://carlbrashear.org/
 carl breasher vakfı web sitesi
 
+-https://www.diversinstitute.edu/men-honor-actors-navy-dit-staff/#:~:text=%E2%80%9CThe%20Navy%20Diver%20is%20not,the%20way%2C%20he%20moves%20it.
+MEN OF HONOR: ACTORS, NAVY AND DIT STAFF
+
 
 - https://www.youtube.com/watch?v=ST93gI2wL-g
 Chernobyl | The 3 Men Who Saved Half Of Europe From Disaster | An Unbelievable Documentary
