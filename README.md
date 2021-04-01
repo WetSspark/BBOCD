@@ -172,6 +172,18 @@ kirby morgan wallpaperları
 - https://www.youtube.com/watch?v=IUdRYifIuE0
 The True Story Behind Men Of Honor | Carl Brashear | The First Black Master Diver In US History
 
+- https://www.youtube.com/watch?v=5uatnG0FfQk
+Tribute to Carl Brashear from motion picture MEN OF HONOR
+
+- https://www.oris.ch/tr/story/56/Carl%20Brashear
+oris markası, carl breasher için bir saat serisi de oluşturmuş
+
+- https://carlbrashear.org/
+carl breasher vakfı web sitesi
+
+
+- https://www.youtube.com/watch?v=ST93gI2wL-g
+Chernobyl | The 3 Men Who Saved Half Of Europe From Disaster | An Unbelievable Documentary
 
 
 
