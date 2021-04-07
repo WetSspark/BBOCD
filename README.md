@@ -1,7 +1,8 @@
 # BBOCD - Big Book Of Commerical Diving
 - Sanayi dalgıçlığıyla ilgili bazı linkler
 
-- Şuan bu link tam olarak düzenlenmiş değil, staj başvurularında gösterebilmek üzere public hale getirdim. Github kullanıcıları public linkelere katkıda bulunabiliyor.
+- Şuan bu link tam olarak düzenlenmiş değil, gösterebilmek üzere public hale getirdim. Github kullanıcıları public linkelere katkıda bulunabiliyor.
+
 
 - Öğrenciler ve yeni başlayanlar (hatta belki eğiticiler) için internette bulduğum ve önemli bilgileri kolayca paylaşmak için oluşturduğum bir link.
 
